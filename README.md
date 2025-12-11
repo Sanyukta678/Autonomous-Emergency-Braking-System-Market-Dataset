@@ -27,7 +27,7 @@ This dataset is built to:
 
 ## Related Resources
 
-• Full Report: [Autonomous Emergency Braking System Market](https://www.nextmsc.com/report/neuropathic-pain-market-hc3575)
+• Full Report: [Autonomous Emergency Braking System Market](https://www.nextmsc.com/report/autonomous-emergency-braking-system-market-at3571)
 
 • Press Release: Autonomous Emergency Braking System Market Trends and Forecasts →
 
